@@ -6,7 +6,7 @@
  — So, here's some basic info abt me: You can call me whatever u like, Im 16 yo and I also live in Ukraine, so that's why English is not my first language<br/>
 rus/ua/eng<br/>
 ── .✦<br/>
-— MAIN FANDOMS: TF2, 8:11, One Piece, Mob Psycho 100 (might add some more later)<br/>
+— MAIN FANDOMS: TF2, Lupin III, 8:11, One Piece, Mob Psycho 100 (might add some more later)<br/>
 - DNI: base, russians, russia supporters
 - THIN ICE: idk srry
   
