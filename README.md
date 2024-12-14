@@ -7,8 +7,15 @@
 rus/ua/eng<br/>
 ── .✦<br/>
 — MAIN FANDOMS: TF2, Lupin III, 8:11, One Piece, Mob Psycho 100 (might add some more later)<br/>
-- DNI: base, russians, russia supporters
-- THIN ICE: idk srry
+— GAMES I PLAY BUT DON'T INTERACT /W FANDOM: Genshin Impact, Infinity Nikki, Skull Girls<br/>
+── .✦
+• DNI: base, russians, russia supporters<br/>
+• THIN ICE: nothing here for now<br/>
+── .✦<br/>
+— My tiktok acc (in case u wanna be moots): @fr1anzz<br/>
+— My telegram: @m0_arii<br/>
+— My discord: m1arii<br/>
+
   
 <!--
 **na0han/na0han** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
