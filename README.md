@@ -8,7 +8,7 @@ rus/ua/eng<br/>
 ── .✦<br/>
 — MAIN FANDOMS: TF2, Lupin III, 8:11, One Piece, Mob Psycho 100 (might add some more later)<br/>
 — GAMES I PLAY BUT DON'T INTERACT /W FANDOM: Genshin Impact, Infinity Nikki, Skull Girls<br/>
-── .✦
+── .✦<br/>
 • DNI: base, russians, russia supporters<br/>
 • THIN ICE: nothing here for now<br/>
 ── .✦<br/>
