@@ -15,7 +15,7 @@ rus/ua/eng<br/>
 — My tiktok acc (in case u wanna be moots): @fr1anzz<br/>
 — My telegram: @m0_arii<br/>
 — My discord: m1arii<br/>
-
+### ˙ . ꒷ 🍙 . 𖦹˙— 🐈‍⬛
   
 <!--
 **na0han/na0han** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
