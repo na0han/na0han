@@ -1,4 +1,4 @@
-## https://tenor.com/view/good-lad-demoflower-it-is-gif-22252469
+## 
 
 - . ݁₊ ⊹ . ݁˖ . ݁ ── .✦
 - Welcome to my profile! I've been learning english for a while now (for like 11 years) but I'm still a little bit too awkward to talk to anyone on pony town, so listen but don't judge yall
@@ -8,6 +8,7 @@ rus/ua/eng
 - DNI: base, russians, russia supporters
 - THIN ICE: idk srry
 - MITSKI, ALEX G, TV GIRL IN MY VEINS
+  <div class="tenor-gif-embed" data-postid="22252469" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/good-lad-demoflower-it-is-gif-22252469">Good Lad Demoflower It Is GIF</a>from <a href="https://tenor.com/search/good+lad+demoflower+it+is-gifs">Good Lad Demoflower It Is GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 <!--
 **na0han/na0han** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
