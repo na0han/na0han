@@ -2,12 +2,11 @@
 
 ─────────────────────────୨ৎ───────────────────────────<br/>
 — Welcome to my profile! I've been learning english for a while now (for like 11 years) but I'm still a little bit too awkward to talk to anyone on pony town, so listen but don't judge yall<br/>
-  . ݁₊ ⊹ . ݁˖ . ݁ ── .<br/>
+── .✦<br/>
  — So, here's some basic info abt me: You can call me whatever u like, Im 16 yo and I also live in Ukraine, so that's why English is not my first language<br/>
 rus/ua/eng<br/>
-  . ݁₊ ⊹ . ݁˖ . ݁ ── .<br/>
+── .✦<br/>
 — MAIN FANDOMS: TF2, 8:11, One Piece, Mob Psycho 100 (might add some more later)<br/>
-. ݁₊ ⊹ . ݁˖ . ݁ ── .<br/>
 - DNI: base, russians, russia supporters
 - THIN ICE: idk srry
   
