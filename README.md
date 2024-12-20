@@ -12,7 +12,7 @@ rus/ua/eng<br/>
 • DNI: base, russians, russia supporters<br/>
 • THIN ICE: nothing here for now<br/>
 ── .✦<br/>
-— My tiktok acc (in case u wanna be moots): @fr1anzz<br/>
+— My tiktok acc (in case u wanna be moots): @m1_arii<br/>
 — My telegram: @m0_arii<br/>
 — My discord: m1arii<br/>
 ### ˙ . ꒷ 🍙 . 𖦹˙— 🐈‍⬛
