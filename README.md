@@ -4,15 +4,15 @@
 — Welcome to my profile! I've been learning english for a while now (for like 11 years) but I'm still a little bit too awkward to talk to anyone on pony town, so listen but don't judge yall<br/>
 ── .✦<br/>
  — So, here's some basic info abt me: You can call me whatever u like, Im 16 yo and I also live in Ukraine, so that's why English is not my first language<br/>
-rus/ua/eng<br/>
+rus/ukr/eng | aroace<br/>
 ── .✦<br/>
-— MAIN FANDOMS: TF2, Lupin III, 8:11, One Piece, Mob Psycho 100, Golden Kamuy (might add some more later)<br/>
+— MAIN FANDOMS: Lupin III, One Piece, Mob Psycho 100, Naruto (might add some more later)<br/>
 — GAMES I PLAY BUT DON'T INTERACT /W FANDOM: Genshin Impact, Infinity Nikki, Skull Girls<br/>
 ── .✦<br/>
-• DNI: base, russians, russia supporters<br/>
+• DNI: base<br/>
 • THIN ICE: nothing here for now<br/>
 ── .✦<br/>
-— My tiktok acc (in case u wanna be moots): @m1_arii<br/>
+— My tiktok acc (in case u wanna be moots): @fr1anzzz<br/>
 — My telegram: @m0_arii<br/>
 — My discord: m1arii<br/>
 ### ˙ . ꒷ 🍙 . 𖦹˙— 🐈‍⬛
